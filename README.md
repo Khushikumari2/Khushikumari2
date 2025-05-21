@@ -1,4 +1,4 @@
-## 🚀 KhushiKumari24.
+## 🚀 KhushiKumari24
 
 ### 👩‍💻 About Me:
 - 🎯 Front-End enthusiast bringing ideas to life with creative and responsive designs.
